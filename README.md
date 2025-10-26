@@ -1,1 +1,1 @@
-i don't like styling my social media 🥹
+I don't like styling uhh what is it called again
