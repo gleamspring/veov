@@ -1,1 +1,1 @@
-There's nothing to see here .  Read my bio
+There's nothing to see here .  Read the text set on website link
